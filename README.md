@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Salfexx9
+- 👀 I’m interested in financial 
+- 🌱 I’m currently learning Management 
+- 💞️ I’m looking to collaborate on fundraising
+- 📫 How to reach me: https://www.facebook.com/if.you.376
